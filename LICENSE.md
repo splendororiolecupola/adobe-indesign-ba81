@@ -1,4 +1,4 @@
-# 
+# updated Affinity Photo para PC addons es el mejor Affinity Photo para PC addons con edición de nodos y mallas de degradado. Seguro, confiable y optimizado para el máximo
 
 
 
